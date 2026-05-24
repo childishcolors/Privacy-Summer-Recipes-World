@@ -1,4 +1,4 @@
-Privacy Policy for Summmer Drink Recipes World Effective Date: May 20, 2026
+Privacy Policy for Summer Drink Recipes World Effective Date: May 20, 2026
 
 Your privacy is extremely important to us. This Privacy Policy describes how my zodiac match ("the App") handles your information.
 
